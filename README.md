@@ -1,1 +1,1 @@
-# JaderH.github.io
+# Who is able to be egotistical needs to be strong too. 
